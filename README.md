@@ -1,3 +1,5 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is anisimokc#8922
+
 # Diff Changed Agent
 
 ## Description
